@@ -4,7 +4,7 @@
 
 This is the first time it was conducted virtually and in-house
 
-"TEAM MATRIX" emerged as the winner of this competition.
+"TEAM MATRIX" emerged as the winner of this tournament.
 
 Members of team matrix are:-
 1.Debrup panda (Ld)
